@@ -9,3 +9,4 @@
 8. Perfect results count - perfect processes not.
 9. Be prepared for war - always.
 10. Dont' be afraid. There are no rules. You can do as you like.
+11. You are remembered for the rules you break.
