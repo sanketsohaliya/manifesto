@@ -10,3 +10,4 @@
 9. Be prepared for war - always.
 10. Dont' be afraid. There are no rules. You can do as you like.
 11. You are remembered for the rules you break.
+12. Urgency is the name of the game
